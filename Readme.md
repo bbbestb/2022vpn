@@ -1,3 +1,19 @@
+
+<!DOCTYPE html>
+<html>
+<head>
+ <meta charset="utf-8">
+</head>
+<body>
+<a href="https://cntizi1.com/?gitwuxianab-2022vpn-pic"><img src="https://cntizi1.com/images/recommend.png" target="_blank"> </a>
+</body>
+</html>
+
+
+---------
+
+--------
+
 ### 2022梯子推荐-科学上网、免费翻墙、免费科学上网、免费自由上网、fanqiang、翻墙梯子、免费软件/方法，一键翻墙浏览器
 
 |  梯子推荐榜   | 推荐指数 | 官网地址  | 备用网址1 | 备用网址2 |
